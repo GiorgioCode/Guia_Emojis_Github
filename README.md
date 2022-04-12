@@ -1,0 +1,1 @@
+# Guia_Emojis_Github
